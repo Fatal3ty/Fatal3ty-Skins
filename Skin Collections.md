@@ -63,3 +63,19 @@
 # [Deutsche Meisterschaft 2018](https://drive.google.com/open?id=1Wi6z8do8dGmgHmynMyR9VkoAhv_tPoY8)
 
 ![](https://osu.ppy.sh/ss/13926040/b68e)
+
+# [Deutsche Meisterschaft 2019](https://drive.google.com/open?id=1m5TgWcg-eGJJzgkyFZBA0eSLXvA-yqmK)
+
+![](https://osu.ppy.sh/ss/13925949/5556)
+
+# [Map Showcase v1.1](https://drive.google.com/open?id=1-JMMaugwko4x25ZdZD6daHfPqB9-pxdm)
+
+![](https://osu.ppy.sh/ss/13925982/5710)
+
+# [ClearSU3 Tourney Indigo](https://drive.google.com/open?id=1tbhAx9KTp5TRev7INLdGYic1TYNUT7V6)
+
+![](https://osu.ppy.sh/ss/13926070/bb31)
+
+# [ClearSU3 Tourney Orange](https://drive.google.com/open?id=1BIQWpMAcGe2C0arHeV4MYa6oT9oP-pD9)
+
+![](https://osu.ppy.sh/ss/13926085/4dc7)
