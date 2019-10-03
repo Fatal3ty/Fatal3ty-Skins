@@ -51,4 +51,15 @@
 ![](https://i.ppy.sh/c3cb989a587108b753db480ff1445148a49e0655/68747470733a2f2f6f73752e7070792e73682f73732f3132313733393531)
 
 # [Clear Skin Ultra 4.0](https://osu.ppy.sh/forum/t/887468)
+
 ![](https://i.ppy.sh/7dce146b549718fe8b77fd71e8d30e4f759be50b/68747470733a2f2f6f73752e7070792e73682f73732f3132393436373439)
+
+# Official Tournament Skins
+
+# [Winter Tourney v1.0](https://drive.google.com/open?id=18T6cEY-FRH6ePnN5RK9BXCAZGZ-M14h7)
+
+![](https://osu.ppy.sh/ss/13925997/965b)
+
+# [Deutsche Meisterschaft 2018](https://drive.google.com/open?id=1Wi6z8do8dGmgHmynMyR9VkoAhv_tPoY8)
+
+![](https://osu.ppy.sh/ss/13926040/b68e)
