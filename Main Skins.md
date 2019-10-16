@@ -13,6 +13,10 @@
 # Fatal3ty Old Main Skins:
 I don't use this while time.
 
+# [Fatal3ty v4.3 Color](https://drive.google.com/open?id=1PWHQ5j7sBC_eU8AAQVGoT--aRhuBsTmH)
+
+![](http://puu.sh/Etl3o/659de28f4a.jpg)
+
 # [Fatal3ty v4.2 Streams](https://drive.google.com/open?id=1FKgvaa3qp9kCFABu9Hrx2L93Ny3Cmi77)
 
 ![](http://puu.sh/EtjiY/ad30974915.jpg)
@@ -32,3 +36,7 @@ I don't use this while time.
 # [Fatal3ty Wolf v1.0](https://drive.google.com/open?id=1a31fwqdszOOOUWxy8efXQqgBf1nF5eru)
 
 ![](http://puu.sh/EtiJg/43478e41d8.jpg)
+
+# [Fatal3ty v3.7](https://drive.google.com/open?id=1iiTp5BzQm7FDRSJTRAuVxusH1Q2PZFeu)
+
+![](http://puu.sh/Etl7y/4b97781844.jpg)
