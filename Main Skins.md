@@ -40,3 +40,27 @@ I don't use this while time.
 # [Fatal3ty v3.7](https://drive.google.com/open?id=1iiTp5BzQm7FDRSJTRAuVxusH1Q2PZFeu)
 
 ![](http://puu.sh/Etl7y/4b97781844.jpg)
+
+# [Fatal3ty v3.6](https://drive.google.com/open?id=1o0Xj2rYJSphFOPKdKti6lnEbBQHy32KU)
+
+![](https://puu.sh/EtlaE/bead20d434.jpg)
+
+# [Fatal3ty v3.5](https://drive.google.com/open?id=1aDYQNUj8Lu7_-s9vdh_rf0kOuIXJYcak)
+
+![](https://puu.sh/EtlEd/170a6f8665.jpg)
+
+# [Fatal3ty v3.4](https://drive.google.com/open?id=1qsql8M68YwegLBzqbaPzrc6p0ffU3JMP)
+
+![](https://puu.sh/EtlK4/1e749c0112.jpg)
+
+# [Fatal3ty v2.6](https://drive.google.com/open?id=1pj_KuIg7ol36Li2YTibWI6vf-wxiE2j-)
+
+![](http://puu.sh/Etm6R/aa098d0a40.jpg)
+
+# [Fatal3ty v2.5](https://drive.google.com/open?id=1eORyOf6XADyq-WzOXv4Z6B43-UKyF7Aq)
+
+![](http://puu.sh/EtorG/a9b5e4a926.jpg)
+
+# [Fatal3ty v2.2](https://drive.google.com/open?id=10ZKroevfnR_pTEZxwoOVE2XRXfchc9wA)
+
+![](http://puu.sh/EtoKz/96d6b9f5f0.jpg)
