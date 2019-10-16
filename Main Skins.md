@@ -89,7 +89,22 @@ I don't use this while time.
 
 ![](http://puu.sh/EtpOW/d5301a4993.jpg)
 
-
 # [Fatal3ty Skin 1.6](https://drive.google.com/open?id=1WhFI3NniQQIa_J7AVBx76pzy3OR84TsV)
 
 ![](http://puu.sh/EtpUr/c8b46d423e.jpg)
+
+# [Fatal3ty Skin 1.5.2](https://drive.google.com/open?id=1WfOLX6-80ON_ej23wJQz4wUiaOXyd1Bo)
+
+![](http://puu.sh/Etq3z/717541d890.jpg)
+
+# [Fatal3ty Skin 1.5.1b](https://drive.google.com/open?id=189-oyWb8hN3mry4Yo6Qjssa66kDBCVfx)
+
+![](http://puu.sh/Etq71/4cbc876eda.jpg)
+
+# [Fatal3ty Skin 1.5.1](https://drive.google.com/open?id=1TE0z4idMlKowHAXyjaFk5AgN576ZmtaS)
+
+![](http://puu.sh/EtqdD/eeaf293792.jpg)
+
+# [Fatal3ty Skin 1.5](https://drive.google.com/open?id=1FncMhK3bgRn-twiTIUfEF5DqIYBT34gS)
+
+![](http://puu.sh/Etqhs/26964b4b74.jpg)
