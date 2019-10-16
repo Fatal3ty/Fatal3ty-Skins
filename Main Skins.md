@@ -64,3 +64,32 @@ I don't use this while time.
 # [Fatal3ty v2.2](https://drive.google.com/open?id=10ZKroevfnR_pTEZxwoOVE2XRXfchc9wA)
 
 ![](http://puu.sh/EtoKz/96d6b9f5f0.jpg)
+
+# [Fatal3ty Skin 1.6.4](https://drive.google.com/open?id=1WUmyWruCvKsu-1zF7iw_JoygSpVw4q1m)
+
+![](http://puu.sh/Etpf6/d60a149168.jpg)
+
+# [Fatal3ty Skin 1.6.3](https://drive.google.com/open?id=1tbovMuqDZ7t9R3bt0N6WvrUb9_mGG8OB)
+
+![](http://puu.sh/EtpkQ/3151da1fee.jpg)
+
+# [Fatal3ty Skin 1.6.2b](https://drive.google.com/open?id=1MAmfsXrytIlJdcIaSPxMJmlcs4jLFh_f)
+
+![](http://puu.sh/EtptS/f137d5358a.jpg)
+
+# [Fatal3ty Skin 1.6.2](https://drive.google.com/open?id=1UHoDZOryJRIfwVnTadPD2Vb2IyG_xr3j)
+
+![](http://puu.sh/EtpyO/9291dd83ed.jpg)
+
+# [Fatal3ty Skin 1.6.1](https://drive.google.com/open?id=1NVe_Fnbif7Q-1bqWLI8Dqq8A0L8S6Kpc)
+
+![](http://puu.sh/EtpGv/f654aa2eef.jpg)
+
+# [Fatal3ty Skin 1.6b](https://drive.google.com/open?id=1iGAThUH7zw_79ZMP5CahXH6kK0fzEVeN)
+
+![](http://puu.sh/EtpOW/d5301a4993.jpg)
+
+
+# [Fatal3ty Skin 1.6](https://drive.google.com/open?id=1WhFI3NniQQIa_J7AVBx76pzy3OR84TsV)
+
+![](http://puu.sh/EtpUr/c8b46d423e.jpg)
