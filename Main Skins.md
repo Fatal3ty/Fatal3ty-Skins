@@ -112,3 +112,36 @@ I don't use this while time.
 # [Fatal3ty Skin 1.5](https://drive.google.com/open?id=1FncMhK3bgRn-twiTIUfEF5DqIYBT34gS)
 
 ![](http://puu.sh/Etqhs/26964b4b74.jpg)
+
+# [Fatal3ty Skin 1.4.1](https://drive.google.com/open?id=1jvziuspGGBzeW0itkYa-sTI-tZOJIn2m)
+
+![](https://puu.sh/Eu8EY/7b27d947ee.jpg)
+
+# [Fatal3ty Skin 1.4 EZ](https://drive.google.com/open?id=1a-5b887RvQuh6Bn3yvfMoaN4uLDjuazH)
+
+![](http://puu.sh/Eu8O6/671c6f41de.jpg)
+
+# [Fatal3ty Skin 1.4](https://drive.google.com/open?id=1vWIQk7IusGfzHCG__cHaV1Oro-NCFoGc)
+
+![](http://puu.sh/Eu8Mj/a48207d8ef.jpg)
+
+# [Fatal3ty Skin 1.3.5](https://drive.google.com/open?id=14BtvkJQOPDBbFM9LkaqVVI2i3Dzy8-kH)
+
+![](http://puu.sh/Eu8QE/7ad27385d9.jpg)
+
+# [Fatal3ty Skin 1.3.4b](https://drive.google.com/open?id=1dpNYI22Qjnh-fEdhqDikPxXPomFjo4s8)
+
+![](http://puu.sh/Eu90V/01702d7e4c.jpg)
+
+# [Fatal3ty Skin 1.3.4](https://drive.google.com/open?id=1RInyZoQsObJhLp6DQFnZ78Gj_UovXVrh)
+
+![](http://puu.sh/Eu92j/61ac7d0c7b.jpg)
+
+# [Fatal3ty Skin 1.3.3c](https://drive.google.com/open?id=1nM7wU1mp_N2Z3Ve4UQBMr4y8e_zAazIb)
+
+![](http://puu.sh/Eu94R/57a6efe1d7.jpg)
+
+# [Fatal3ty Skin 1.3.3b](https://drive.google.com/open?id=14Gb6BXhmeInsyNo3N-cSlimRPLB_x3pS)
+
+![](http://puu.sh/Eu980/2a1fc8cb51.jpg)
+
