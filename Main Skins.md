@@ -85,6 +85,10 @@ I don't use this while time.
 
 ![](http://puu.sh/EtpGv/f654aa2eef.jpg)
 
+# [Fatal3ty Skin 1.6c](https://drive.google.com/open?id=1ER7Bq2r-b2tkm2xryKBj20vra_gGEz2h)
+
+![](http://puu.sh/Eu5VW/fb3d3111be.jpg)
+
 # [Fatal3ty Skin 1.6b](https://drive.google.com/open?id=1iGAThUH7zw_79ZMP5CahXH6kK0fzEVeN)
 
 ![](http://puu.sh/EtpOW/d5301a4993.jpg)
