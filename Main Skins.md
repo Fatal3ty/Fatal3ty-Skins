@@ -145,3 +145,38 @@ I don't use this while time.
 
 ![](http://puu.sh/Eu980/2a1fc8cb51.jpg)
 
+# [Fatal3ty Skin 1.3.2](https://drive.google.com/open?id=1tFIA_BcBlU8-zk7mZPQeuuuSt7yOEDqL)
+
+![](http://puu.sh/Eu9ls/a80857428f.jpg)
+
+# [Fatal3ty Skin 1.3.1](https://drive.google.com/open?id=1ELH0HVMRv3samXvjEjErAEhJ2JWfOzZB)
+
+![](http://puu.sh/Eu9I2/70fe8b913e.jpg)
+
+# [Fatal3ty Skin 1.2.2](https://drive.google.com/open?id=1NqDf1o5ZX-eTbiBAdih9mMJazodhBhvm)
+
+![](http://puu.sh/Eua4h/6d7dc5b0ab.jpg)
+
+# [Fatal3ty Skin 1.2c TAG](https://drive.google.com/open?id=1VYFotxANH_1TGGW412GVG6HdLMms2UJq)
+
+![](http://puu.sh/Eu9Qp/6160c711e0.jpg)
+
+# [Fatal3ty Skin 1.2c](https://drive.google.com/open?id=1duqP5-3n7DGHr4dR48mPEsDGVVhmWYsU)
+
+![](http://puu.sh/Eu9Wg/1d3a4583e3.jpg)
+
+# [Fatal3ty Skin 1.2b](https://drive.google.com/open?id=1Tk9qoN6pScETqCwECwsZagURrp2Mb93e)
+
+![](http://puu.sh/Eu9Y5/11bd8b8c08.jpg)
+
+# [Fatal3ty Skin 1.2](https://drive.google.com/open?id=1gGSeXRTpbOYV2RJ1LUFKINSwvLaUhluZ)
+
+![](http://puu.sh/Eua9q/1a86550ddf.jpg)
+
+# [Fatal3ty Skin 1.1](https://drive.google.com/open?id=1eHDsxUtZLzuHC5r2g8eetqAnFdLf4c1Y)
+
+![](http://puu.sh/EuabW/9e85a9be1e.jpg)
+
+# [Fatal3ty Skin 1.0](https://drive.google.com/open?id=1VM0ZTkF3xB5I5kg0zQu1SvESlF068t0q)
+
+![](http://puu.sh/EuacG/e6105f4173.jpg)
