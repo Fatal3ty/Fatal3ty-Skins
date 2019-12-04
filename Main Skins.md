@@ -1,3 +1,7 @@
+# [Ameliorate Fatal v1.8](https://drive.google.com/open?id=1tduaI2RZqoD26L3DcJIKXtZZg2Nmx9KI)
+
+![](https://osu.ppy.sh/ss/14199125/57c4)
+
 # [Ameliorate Fatal v1.7](https://drive.google.com/open?id=1zWSqbegbV3kJpPNAY-Ku2P37XrHqjXIb)
 
 ![](https://osu.ppy.sh/ss/13986032/f050)
