@@ -4,7 +4,7 @@
 
 # [Draw Skin 1.3](https://osu.ppy.sh/forum/t/303007)
 
-![](https://i.ppy.sh/9db97948811d9855abb4f4c441bdccbccab88b40/687474703a2f2f7075752e73682f67327a47592f656162326135383561622e6a7067)
+![](https://i.ppy.sh/e9e9bf46bcd95e64fe61e0d2ceea7d5f9ef4649d/687474703a2f2f7075752e73682f46377138512f363366383637623964322e6a7067)
 
 # [Clear Skin Ultra v2.4](https://osu.ppy.sh/forum/t/300001)
 
