@@ -1,43 +1,43 @@
-# [Ameliorate Fatal v1.8](https://drive.google.com/open?id=1tduaI2RZqoD26L3DcJIKXtZZg2Nmx9KI)
+# [Ameliorate Fatal v1.8](https://www.dropbox.com/s/04562b3zqqw1s2j/Ameliorate%20Fatal%20v1.8.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/14199125/57c4)
 
-# [Ameliorate Fatal v1.7](https://drive.google.com/open?id=1zWSqbegbV3kJpPNAY-Ku2P37XrHqjXIb)
+# [Ameliorate Fatal v1.7](https://www.dropbox.com/s/qwjzfp7jbx00ldi/Ameliorate%20v1.7.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13986032/f050)
 
-# [Azer8dawn Fatal v1.2](https://drive.google.com/open?id=1d8xQpwTPSaV0qqYmOcZIyZ-QfH42UgWO)
+# [Azer8dawn Fatal v1.2](https://www.dropbox.com/s/b7q3kd19lftxlqc/Azer8dawn%20Fatal%20v1.2.osk?dl=1)
 
 ![](https://puu.sh/EthOW/31be742086.jpg)
 
-# [Ameliorate Fatal v2.0](https://drive.google.com/open?id=188mCX0-btFwhmtUiwPgPjsT9i-3AMrY3)
+# [Ameliorate Fatal v2.0](https://www.dropbox.com/s/uxklmsec0xen4uy/Ameliorate%20Fatal%20v2.0.osk?dl=1)
 
 ![](http://puu.sh/EthZz/301b7c4aea.jpg)
 
 # Fatal3ty Old Main Skins:
 I don't use this while time.
 
-# [Fatal3ty v4.3 Color](https://drive.google.com/open?id=1PWHQ5j7sBC_eU8AAQVGoT--aRhuBsTmH)
+# [Fatal3ty v4.3 Color](https://www.dropbox.com/s/njmafksk5w6xsuj/Fatal3ty%20v4.3%20Color.osk?dl=1)
 
 ![](http://puu.sh/Etl3o/659de28f4a.jpg)
 
-# [Fatal3ty v4.2 Streams](https://drive.google.com/open?id=1FKgvaa3qp9kCFABu9Hrx2L93Ny3Cmi77)
+# [Fatal3ty v4.2 Streams](https://www.dropbox.com/s/asfne4k2ols0a0g/Fatal3ty%20v4.2%20Stream.osk?dl=1)
 
 ![](http://puu.sh/EtjiY/ad30974915.jpg)
 
-# [Fatal3ty v4.2 Jumps](https://drive.google.com/open?id=1P_i1Fb_R25AEE27-qNqvk84nmjs1wmhp)
+# [Fatal3ty v4.2 Jumps](https://www.dropbox.com/s/sb4kup9zkr9a7sr/Fatal3ty%20v4.2%20Jumps.osk?dl=1)
 
 ![](https://puu.sh/Etk3y/31d3784162.jpg)
 
-# [Fatal3ty Wolf v4.0](https://drive.google.com/open?id=1jGxyviTSencQThlWZRiHTSQ0c-9Fejnl)
+# [Fatal3ty Wolf v4.0](https://www.dropbox.com/s/nzeuhonbnlf8xkz/Fatal3ty%20Wolf%20v4.0.osk?dl=1)
 
 ![](http://puu.sh/Eti6I/167763f72b.jpg)
 
-# [Fatal3ty Skin v3.9](https://drive.google.com/open?id=1ecAizAGogQyD9UpfjdCJbywdA2-M3n2N)
+# [Fatal3ty Skin v3.9](https://www.dropbox.com/s/9qe25n509x90fg6/Fatal3ty%20Skin%20v3.9.osk?dl=1)
 
 ![](http://puu.sh/EtilF/4d76ff91c9.jpg)
 
-# [Fatal3ty Wolf v1.0](https://drive.google.com/open?id=1a31fwqdszOOOUWxy8efXQqgBf1nF5eru)
+# [Fatal3ty Wolf v1.0](https://www.dropbox.com/s/844x6qeebzwj26v/Fatal3ty%20Wolf%20v1.0.osk?dl=1)
 
 ![](http://puu.sh/EtiJg/43478e41d8.jpg)
 
