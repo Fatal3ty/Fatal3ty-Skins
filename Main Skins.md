@@ -1,3 +1,7 @@
+# [Ameliorate Fatal v1.9](https://www.dropbox.com/s/377yyqak7wvq8gq/Ameliorate%20Fatal%20v1.9.osk?dl=1)
+
+![](http://puu.sh/Fe9t5/4a596c3f6f.jpg)
+
 # [Ameliorate Fatal v1.8](https://www.dropbox.com/s/04562b3zqqw1s2j/Ameliorate%20Fatal%20v1.8.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/14199125/57c4)
