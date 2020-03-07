@@ -56,15 +56,15 @@
 
 # Official Tournament Skins
 
-# [Winter Tourney v1.0](https://drive.google.com/open?id=18T6cEY-FRH6ePnN5RK9BXCAZGZ-M14h7)
+# [Winter Tourney v1.0](https://www.dropbox.com/s/45k0h4a0dxl2lh3/Winter%20Tourney%20v1.0.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13925997/965b)
 
-# [Deutsche Meisterschaft 2018](https://drive.google.com/open?id=1Wi6z8do8dGmgHmynMyR9VkoAhv_tPoY8)
+# [Deutsche Meisterschaft 2018](https://www.dropbox.com/s/b89gptbh730d5vm/Deutsche%20Meisterschaft%202018.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13926040/b68e)
 
-# [Deutsche Meisterschaft 2019](https://drive.google.com/open?id=1m5TgWcg-eGJJzgkyFZBA0eSLXvA-yqmK)
+# [Deutsche Meisterschaft 2019](https://www.dropbox.com/s/lo5brxm06kjpalm/Deutsche%20Meisterschaft%202019.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13925949/5556)
 
