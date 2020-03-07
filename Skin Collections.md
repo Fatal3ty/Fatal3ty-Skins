@@ -68,25 +68,25 @@
 
 ![](https://osu.ppy.sh/ss/13925949/5556)
 
-# [Map Showcase v1.1](https://drive.google.com/open?id=1-JMMaugwko4x25ZdZD6daHfPqB9-pxdm)
+# [Map Showcase v1.1](https://www.dropbox.com/s/em3owalbpqo5umv/Map%20Showcase%20v1.1.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13925982/5710)
 
-# [ClearSU3 Tourney Indigo](https://drive.google.com/open?id=1tbhAx9KTp5TRev7INLdGYic1TYNUT7V6)
+# [ClearSU3 Tourney Indigo](https://www.dropbox.com/s/4w00d1nerdqc1dk/ClearSU3%20Tourney%20Indigo.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13926070/bb31)
 
-# [ClearSU3 Tourney Orange](https://drive.google.com/open?id=1BIQWpMAcGe2C0arHeV4MYa6oT9oP-pD9)
+# [ClearSU3 Tourney Orange](https://www.dropbox.com/s/ofvitftuc0mxcn1/ClearSU3%20Tourney%20Orange.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13926085/4dc7)
 
 # Official Top Player Skins
 
 
-# [Rohulk 5.0](https://drive.google.com/open?id=1LQPRGHPGzCFVRRXgMMGI77HFFpCmJ70o)
+# [Rohulk 5.0](https://www.dropbox.com/s/bi6au6d9a51qlug/Rohulk%205.0.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13955075/c031)
 
-# [Rohulk 5.0 Classic](https://drive.google.com/open?id=1Z0S1_qCyCaqY6B5sJpZkid4oaoxtoA3u)
+# [Rohulk 5.0 Classic](https://www.dropbox.com/s/4qupvh455nv77w5/Rohulk%205.0%20Classic.osk?dl=1)
 
 ![](https://osu.ppy.sh/ss/13955085/1702)
