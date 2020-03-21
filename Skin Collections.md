@@ -12,7 +12,7 @@
 
 # [Neonlight Skin 1.0](https://osu.ppy.sh/forum/t/307973)
 
-![](https://i.ppy.sh/c34ab95daa564f8bb17d2769189b94fa5221ed5f/687474703a2f2f7075752e73682f676f34714f2f353630323230383031312e6a7067)
+![](http://puu.sh/FnkU5/c657dc5674.jpg)
 
 # [Materialist 1.0](https://osu.ppy.sh/forum/t/440774)
 
